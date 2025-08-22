@@ -51,7 +51,7 @@ Autores
 
 - Emmanuel Cardona Alvarez
     - GitHub: [Emmael2005](https://github.com/Emmael2005)
-    - LinkedIn: (por completar)
-    - Correo: (por completar)
+    - LinkedIn: [Emmanuel Cardona Alvarez](www.linkedin.com/in/emmanuel-cardona-39839b380)
+    - Correo: emmaca1995@gmail.com 
 
 -------
